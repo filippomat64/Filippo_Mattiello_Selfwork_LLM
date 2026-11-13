@@ -1,0 +1,1 @@
+ho rifatto gli esercizi, spero possano andare bene ora, che ho modificato alcune cose e mi sembra vada bene tutto
